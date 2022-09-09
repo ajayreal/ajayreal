@@ -9,3 +9,4 @@ ajayreal/ajayreal is a ✨ special ✨ repository because its `README.md` (this 
 You can click the Preview link to take a look at your changes.
 --->
 also i code
+I am just takin 100 1,000 10,000 100,000 R$ per hour
